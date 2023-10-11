@@ -15,4 +15,5 @@ Enoch wrote his Ethiopic Bible as the first and oldest author in any human langu
 
 "_The year is exactly as to its days three hundred and sixty-four._"
                                     ~**Book of Enoch 72:33**
+                                    
 ![image](https://github.com/tomasSeged/bahre-hasab/assets/93675879/582611e8-6da7-4f78-9125-3f1489b4e9e6)
